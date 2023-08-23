@@ -18,13 +18,13 @@
 
 ㅤㅤ⌌ — — —☁️
 
-ㅤㅤ│□✧ ![bunny1](https://github.com/FrederickVal/FrederickVal/assets/142271093/0c4d48c3-1424-4649-893c-57be3ae90fff) Funny Valentine is my coping link, I do not condone his original actions and thats why I even changed my FV and his info entirely
+ㅤㅤ│□✧ ![bunny1](https://github.com/FrederickVal/FrederickVal/assets/142271093/0c4d48c3-1424-4649-893c-57be3ae90fff) Funny Valentine is my coping link, I do not condone his original actions and thats why I even changed my FV
 
 ㅤㅤ│□✧ ![bunny1](https://github.com/FrederickVal/FrederickVal/assets/142271093/0c4d48c3-1424-4649-893c-57be3ae90fff) I hate Lucy Steel in general even way before I saw those certain panel she had, please do not interact with me in a Lucy pony
 
 ㅤㅤ│□✧ ![bunny1](https://github.com/FrederickVal/FrederickVal/assets/142271093/0c4d48c3-1424-4649-893c-57be3ae90fff) I'm mostly afk in game due to school
 
-ㅤㅤ│□✧ ![bunny1](https://github.com/FrederickVal/FrederickVal/assets/142271093/0c4d48c3-1424-4649-893c-57be3ae90fff) My friends and I are mostly victims of grooming and pedo, please try your best to refrain from mentioning this topics in front of us
+ㅤㅤ│□✧ ![bunny1](https://github.com/FrederickVal/FrederickVal/assets/142271093/0c4d48c3-1424-4649-893c-57be3ae90fff) My friends and I are mostly victims of grooming and pedo, please limit this topic around us
 
 ㅤㅤ│□✧ ![bunny1](https://github.com/FrederickVal/FrederickVal/assets/142271093/0c4d48c3-1424-4649-893c-57be3ae90fff) Please no heavy NSFW topics around me...I dont like heavy R18+ words even if its just used for joking purposes...
 
