@@ -1,6 +1,6 @@
 ### ❝ A President should make sure the entire population of his country knows him. ❞
 
-**♡. Salutations, this is going to be a bit cringy but I'll try to make this sound less cringy for people.**
+**♡. Salutations, please read my basic Before You Interact list right here before talking to me.**
 
 ❥ ‑‑‑‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑
 
