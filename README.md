@@ -21,7 +21,7 @@
 
 ↳🕮 the byi section ｡˚✩
 
-‣ i am a proshipper. feel free to block me idc. antis are the reason why i became a proshipper and left the anti space btw. antis are just assholes compared to proshippers it amazes me how they kept saying to others that they are the "normal" ones. go harass your literature subject teacher then if you are against proshippers. [former anti here as well]
+‣ i became a proshipper now. feel free to block me idc. antis are the reason why i became a proshipper and left the anti space btw. antis are just assholes compared to proshippers it amazes me how they kept saying to others that they are the "normal" ones. go harass your literature subject teacher then if you are against proshippers. [former anti here as well]
 
 ‣ my english is sometimes broken.
 
