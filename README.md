@@ -27,7 +27,7 @@
 
 ‣ i do not condone harassment. assholes should just learn how to block.
 
-‣ forget about me being active on pt. im always fucking afk and barely alive in game.
+‣ forget about me being active on pt. im always afk and barely alive in game.
 
 ‣ if i hide you freely DO NOT USE AN ALT TO INT WITH ME. i am hiding you in game for a reason.
 
