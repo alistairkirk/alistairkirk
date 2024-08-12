@@ -1,48 +1,55 @@
-### ❝ A President should make sure the entire population of his country knows him. ❞
+![tumblr_056f077d21b9a9a31351f88f775db5b5_fdb1d842_2048](https://github.com/user-attachments/assets/b0c1177f-9b7c-48f6-9ae4-82a322d3c681)
 
-**♡. Salutations, please read my basic Before You Interact list right here before talking to me.**
+### ᴘʀᴏꜰɪʟᴇ ʙɪᴏꜱ
 
 ❥ ‑‑‑‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑
 
-↳🕮 the following ﹏﹏﹏‍ ｡˚✩
+↳🕮 the following information ｡˚✩
 
 ‣ stuff here are being updated a lot
 
-‣ still working on my guestbook
+‣ im barely online due to mental health
 
 ‣ too lazy to make ponies
 
 ❥ ‑‑‑‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑
 
-![horse1](https://github.com/FrederickVal/FrederickVal/assets/142271093/891ac3a2-2e83-40c1-930b-930dd1660a9c) ► 𝐵𝑒𝒻𝑜𝓇𝑒 𝓎𝑜𝓊 𝒾𝓃𝓉𝑒𝓇𝒶𝒸𝓉.♡ ;; 🍃 ![horse1](https://github.com/FrederickVal/FrederickVal/assets/142271093/891ac3a2-2e83-40c1-930b-930dd1660a9c)
+![tumblr_5712ed0aac8703f7f7c437fce16f1c8c_81a51bf3_1280](https://github.com/user-attachments/assets/761e6216-4578-47fd-a67b-1262acaacea7)
 
-ㅤㅤ⌌ — — —☁️
+### ʙᴇꜰᴏʀᴇ ʏᴏᴜ ɪɴᴛᴇʀᴀᴄᴛ
+❥ ‑‑‑‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑
 
-ㅤㅤ│□✧ ![bunny1](https://github.com/FrederickVal/FrederickVal/assets/142271093/0c4d48c3-1424-4649-893c-57be3ae90fff) Funny Valentine is my coping link, I do not condone his original actions and thats why I even changed my FV
+↳🕮 the byi section ｡˚✩
 
-ㅤㅤ│□✧ ![bunny1](https://github.com/FrederickVal/FrederickVal/assets/142271093/0c4d48c3-1424-4649-893c-57be3ae90fff) I hate Lucy Steel in general even way before I saw those certain panel involving her, pls do not int with me in a Lucy pony
+‣ i am a proshipper. feel free to block me idc. antis are the reason why i became a proshipper and left the anti space btw. antis are just assholes compared to proshippers it amazes me how they kept saying to others that they are the "normal" ones. go harass your literature subject teacher then if you are against proshippers. [former anti here as well]
 
-ㅤㅤ│□✧ ![bunny1](https://github.com/FrederickVal/FrederickVal/assets/142271093/0c4d48c3-1424-4649-893c-57be3ae90fff) I'm mostly afk in game due to school
+‣ my english is sometimes broken.
 
-ㅤㅤ│□✧ ![bunny1](https://github.com/FrederickVal/FrederickVal/assets/142271093/0c4d48c3-1424-4649-893c-57be3ae90fff) My friends and I are mostly victims of grooming and pedo, please limit this topic around us
+‣ i do not condone harassment. assholes should just learn how to block.
 
-ㅤㅤ│□✧ ![bunny1](https://github.com/FrederickVal/FrederickVal/assets/142271093/0c4d48c3-1424-4649-893c-57be3ae90fff) Please no heavy NSFW topics around me...I dont like heavy R18+ words even if its just used for joking purposes...
+‣ forget about me being active on pt. im always fucking afk and barely alive in game.
 
-ㅤㅤ│□✧ ![bunny1](https://github.com/FrederickVal/FrederickVal/assets/142271093/0c4d48c3-1424-4649-893c-57be3ae90fff) I hate confrontations, please do not confront me
+‣ if i hide you freely DO NOT USE AN ALT TO INT WITH ME. i am hiding you in game for a reason.
 
-ㅤㅤ│□✧ ![bunny1](https://github.com/FrederickVal/FrederickVal/assets/142271093/0c4d48c3-1424-4649-893c-57be3ae90fff) I don't like hearing slurs around me even if you can reclaim them...it just makes me unfomy
+‣ my stay at the mental hospital before actually have made me sound rude as fuck. dont take it to heart though.
 
-ㅤㅤ│□✧ ![bunny1](https://github.com/FrederickVal/FrederickVal/assets/142271093/0c4d48c3-1424-4649-893c-57be3ae90fff) I'm actually a pansexual male irl, I only go by He/Him pronouns only
+❥ ‑‑‑‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑
 
-ㅤㅤ│□✧ ![bunny1](https://github.com/FrederickVal/FrederickVal/assets/142271093/0c4d48c3-1424-4649-893c-57be3ae90fff) I only ship GyJo, DieJonni, Scarlet x Valentine, Johnny x Valentine, Diego x Valentine, JotaKak and other official ships
+![tumblr_5712ed0aac8703f7f7c437fce16f1c8c_81a51bf3_1280](https://github.com/user-attachments/assets/761e6216-4578-47fd-a67b-1262acaacea7)
 
-ㅤㅤ│□✧ ![bunny1](https://github.com/FrederickVal/FrederickVal/assets/142271093/0c4d48c3-1424-4649-893c-57be3ae90fff) If you respect my basic BYI list then everything should be good, feel free to read my carrd too
+### ᴅᴏ ɴᴏᴛ ɪɴᴛᴇʀᴀᴄᴛ
+❥ ‑‑‑‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑
 
-ㅤㅤ⌎ — — — —
+↳🕮 the dni section ｡˚✩
 
-***❝ Although it was a lengthy read, I do hope you remembered this. ❞***
+‣ luv4abba and co: i always thought the interaction and vibe meowabbacchio gave was weird in game even back then when i was an anti so i just stayed away from ponytown after the mental hospitalization. i know because i actually got groomed by adults before too. apparently i was right and the guy was an actual real groomer/pedophile. https://x.com/Zpelli_79/status/1822356355568787913 
 
-❝ The galaxy and the night skies...they are quite beautiful...the stars...the stars matches your eyes dear. ❞
+‣ ANTIS STRICTLY DNI: i do not want to be back into your stupid harassment and grooming ass space again. its weird that i actually learned detailed sexual connotations more from actual antis than proshippers wth.
 
-![Galaxy](https://github.com/FrederickVal/FrederickVal/assets/142271093/6b697bcf-fe99-48fc-85e6-6b9c6475c927)
+‣ people who dont just block others and instead harass them nonstop: yeah. do that irl. lets see how far that would drag you.
 
+‣ users who uses alts to see me. fuck you. i hid you for a reason. be glad you dont get to see me already.
+
+‣ pedophile apologist/enablers: idc if they are antis or not. a pedophile enabler is a pedophile enabler. and antis need to fucking learn that.
+
+❥ ‑‑‑‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑
