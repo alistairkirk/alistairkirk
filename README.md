@@ -42,7 +42,7 @@
 
 ↳🕮 the dni section ｡˚✩
 
-‣ luv4abba and co: i always thought the interaction and vibe meowabbacchio gave was weird in game even back then when i was an anti so i just stayed away from ponytown after the mental hospitalization. i know because i actually got groomed by adults before too. apparently i was right and the guy was an actual real groomer/pedophile. https://x.com/Zpelli_79/status/1822356355568787913 
+‣ luv4abba and co: i always thought the interaction and vibe meowabbacchio gave was weird in game even back then when i was an anti and mental hospitalized due to the dia situation so i just stayed silent. i know because i actually got groomed by adults before too. apparently i was right and the guy was an actual real groomer/pedophile. https://x.com/Zpelli_79/status/1822356355568787913 
 
 ‣ ANTIS STRICTLY DNI: i do not want to be back into your stupid harassment and grooming ass space again. its weird that i actually learned detailed sexual connotations more from actual antis than proshippers wth.
 
