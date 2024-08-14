@@ -44,7 +44,7 @@
 
 ‣ luv4abba and co: i always thought the interaction and vibe meowabbacchio gave was weird in game even back then when i was an anti and mental hospitalized due to the dia situation so i just stayed silent. this happened when i was at pg jjba area and they were pretty weird around other minors from that area too. i know because i actually got groomed by adults before too. apparently i was right and the guy was an actual real groomer/pedophile. https://x.com/Zpelli_79/status/1822356355568787913 
 
-‣ ANTIS STRICTLY DNI: i do not want to be back into your stupid harassment and grooming ass space again. its weird that i actually learned detailed sexual connotations more from actual antis than proshippers wth.
+‣ ANTIS STRICTLY DNI: i do not want to be back into your stupid harassment and grooming ass space again. its weird that i actually learned detailed sexual connotations more from actual antis than proshippers wth. (wth? someone made a site on this too https://reset-the-clock-remastered-2024.pages.dev)
 
 ‣ people who dont just block others and instead harass them nonstop: yeah. do that irl. lets see how far that would drag you.
 
