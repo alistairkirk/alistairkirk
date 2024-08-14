@@ -50,6 +50,6 @@
 
 ‣ users who uses alts to see me. fuck you. i hid you for a reason. be glad you dont get to see me already.
 
-‣ pedophile apologist/enablers: idc if they are antis or not. a pedophile enabler is a pedophile enabler. and antis need to fucking learn that.
+‣ pedophile apologist/enablers: idc if they are antis or not. a pedophile enabler is a pedophile enabler. and antis need to fucking learn that. im looking at you luv4abba, seccoasis, crue_concepts and co.
 
 ❥ ‑‑‑‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑ ‑
